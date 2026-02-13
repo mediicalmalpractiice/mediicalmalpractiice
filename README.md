@@ -1,16 +1,15 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**mediicalmalpractiice/mediicalmalpractiice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  <img src="https://file.garden/aW26Bw2LYQfOzvvc/Untitled523_20260212143129%20(1).png" width="360">
 
-Here are some ideas to get you started:
+  $\text{\color{#cb8d95} tripmine⠀━⠀19⠀she〳her  transfem sapphic}$\
+$\text{\color{#cb8d95}sys ﹋⠀nonsharing madkit + medkit yume}$\
+$\text{\color{#cb8d95}c+h + w2i always  madmedspace ceo}$\
+$\text{\color{#cb8d95}ac - exeluver}$
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+\
+[ⅰ](https://rentry.co/madmedspace) [ⅱ](https://guns.lol/madmedspace)
+
+<img src="https://komarev.com/ghpvc/?username=mediicalmalpractiice&label=test_subjects&color=cb8d95&style=plastic"> </p>
+ 
+</div>
