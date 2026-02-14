@@ -10,6 +10,6 @@ $\text{\color{#cb8d95}ac - exeluver}$
 \
 [ⅰ](https://rentry.co/madmedspace) [ⅱ](https://guns.lol/madmedspace)
 
-<img src="https://komarev.com/ghpvc/?username=mediicalmalpractiice&label=test_subjects&color=cb8d95&style=plastic"> </p>
+<img src="https://komarev.com/ghpvc/?username=madmedspace&label=test_subjects&color=cb8d95&style=plastic"> </p>
  
 </div>
